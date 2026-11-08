@@ -1,2 +1,0 @@
-Nero Moreno
-Paula Rubio
